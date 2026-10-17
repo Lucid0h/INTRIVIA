@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 [Cluster penuh dengan semangat dan tawa]
+
+## Harapan Kuliah 
+[Mendapat teman baik & banyak] 
